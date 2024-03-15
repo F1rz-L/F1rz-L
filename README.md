@@ -1,4 +1,4 @@
-### Hello, Passerby..
+### Hello, Passerby...
 
 Im **Muhammad Syamfiraas Akbar** or you may know me by my alias, *Firz*. Here's what you need to know about me:
 <br><br>
